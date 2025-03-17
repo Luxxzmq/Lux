@@ -13,4 +13,6 @@ My Discord would be luxxzmq, -> [Roblox](https://www.roblox.com/users/1877066579
 
 I mostly don't talk first though cuz I am pretty anxious so sorry if thats a problem.
 
-![Download (1)](https://github.com/user-attachments/assets/11be4a18-f773-43bd-a9ee-882d886d5442)
+
+
+(am new here and too lazy to put more effort into this tbh)

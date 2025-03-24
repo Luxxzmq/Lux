@@ -3,7 +3,7 @@
 
  # Lux.ᐟ ᯓ★ 
 
-Hai am Lux and I mostly do cosplays on PT + [Roblox](https://www.roblox.com/users/1877066579/profile) or on anywhere I get the chance to.
+Hai am Lux and I mostly do cosplays on PT + [Roblox](https://www.roblox.com/users/1877066579/profile) or on anywhere I get the chance to!
 
 I'm mostly offtab or afk but I always check in between!
 

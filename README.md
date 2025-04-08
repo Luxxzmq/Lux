@@ -7,7 +7,7 @@ Hai am Lux and I mostly do cosplays on PT + [Roblox](https://www.roblox.com/user
 
 I'm mostly offtab or afk but I always check in between!
 
-My current fav interests would be; Outlast, Still Wakes The Deep, SCP, Branched Realities (PIGGY), FNaF, Poppy Playtime, RDR2 + 1, Strangers from Hell and Squid Game!!
+My current fav interests would be; FNaF + (BLUEYCAPSULES), RDR2 + 1, Outlast, Still Wakes The Deep, SCP, Branched Realities (PIGGY), Poppy Playtime, Strangers from Hell and Squid game!! :3
 
 
 My Discord would be luxxzmq, -> [Roblox](https://www.roblox.com/users/1877066579/profile), -> [TikTok](https://www.tiktok.com/@luxxzmq), also when sending me a request on anywhere might just tell me before doing so, so that I don't just decline it because of not knowing who it is. 
